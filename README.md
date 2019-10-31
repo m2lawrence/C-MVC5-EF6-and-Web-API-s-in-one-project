@@ -4,5 +4,4 @@ Currently seeking a career as a Microsoft C# full stack developer in Birmingham,
 at: m2lawrence77@outlook.com 
 
 Kind regards,
-Michael Lawrence BSc (HONS) 
-07477900393
+Michael Lawrence BSc (HONS). 
